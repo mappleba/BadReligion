@@ -1,6 +1,6 @@
 #Bad :no_entry_sign: Religion 
 
-Lyrics to songs from **Bad Religion**'s third album, _Suffer_:
+Lyrics to songs from **Bad Religion**:bangbang:'s third album, _Suffer_:
 
 ![Suffer Picture](images/br.jpg)
 
